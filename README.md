@@ -1,1 +1,0 @@
-# ElementalGeneralist.github.io
